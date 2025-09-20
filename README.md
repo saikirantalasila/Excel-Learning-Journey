@@ -69,8 +69,11 @@ Excel-Learning-Journey/
 
 ## 👤 Author
 **Sai Kiran Talasila**  
-GitHub: [saikirantalasila](https://github.com/saikirantalasila)  
+📧 Email: talasilasaikiran873@gmail.com  
+🌐 GitHub: [saikirantalasila](https://github.com/saikirantalasila)
+ 
 
 ---
+
 
 
